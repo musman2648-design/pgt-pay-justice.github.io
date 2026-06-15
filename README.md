@@ -123,16 +123,6 @@ All documents are cited with official file numbers and dates:
 5. **PHF/ADMIN/3758** — Punjab Health Foundation, 16 Jan 2025 (Citizen Portal response)
 6. **PM&DC Public Notice** — 29 Aug 2025 (Mandatory stipend under PG Regs 2025)
 7. **CPSP Point No.6** — 09 Jun 2026 (Grade-17 parity mandate)
-
----
-
-## ✍️ Original Complaint Filed By
-
-**Dr. Muhammad Usman**  
-Postgraduate Trainee (FCPS)  
-Islamabad, Pakistan  
-IMC Reg No. 527841 | Contact: 03019036629
-
 ---
 
 ## ⚖️ Legal Basis
